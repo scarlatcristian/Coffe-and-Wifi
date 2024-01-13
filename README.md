@@ -1,1 +1,1 @@
-# Coffe-and-Wifi
+# Coffee-and-Wifi
